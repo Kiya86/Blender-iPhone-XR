@@ -2,4 +2,4 @@ Just finished this Blender-iPhone-XR! 📱 It’s looking nice and ready for som
 
 https://thangs.com/mythangs/file/1124522
 
-![Uploading image.png…]()
+![image](https://github.com/user-attachments/assets/a2c0052e-dfd4-4f0d-9d74-7bd07ec79b97)
